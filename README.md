@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Pranto Chakrobortty
-**CSE Graduate | Building Web Applications with MERN & Full Stack Technologies 🚀 | Based in BD 🇧🇩**
+**CSE Graduate | Building Web Applications with MERN & Full Stack Technologies 🚀 | Based in BANGLADESH 🇧🇩**
 
 Email Me 👉 ✉️ **prantochakrobortty24@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
